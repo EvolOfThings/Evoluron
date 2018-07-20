@@ -7,3 +7,5 @@
 - Meditate
 
 - Taking a long walk helps calm the nerves and provides clarity and peace of mind.
+
+- Make list of tasks and set deadline for each. Review weekly.
