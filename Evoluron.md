@@ -10,4 +10,6 @@
 
 - Make list of tasks and set deadline for each. Review weekly.
 
--Eat bland food and take cold showers. Avoid instant dopamine hits, practice dopamine disruption technique.
+- Eat bland food and take cold showers. Avoid instant dopamine hits, practice dopamine disruption technique.
+
+- Take a break
