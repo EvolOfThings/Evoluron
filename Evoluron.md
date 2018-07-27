@@ -12,4 +12,4 @@
 
 - Eat bland food and take cold showers. Avoid instant dopamine hits, practice dopamine disruption technique.
 
-- Take a break
+- Take a break. Take a vacation. Be in a nature.
