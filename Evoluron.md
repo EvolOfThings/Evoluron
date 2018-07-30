@@ -13,3 +13,5 @@
 - Eat bland food and take cold showers. Avoid instant dopamine hits, practice dopamine disruption technique.
 
 - Take a break. Take a vacation. Be in a nature.
+
+- Toxic relationship is a vile that adsorbs your hard earned life's moral and wisdom.
