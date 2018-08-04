@@ -17,3 +17,4 @@
 - Toxic relationship is a vile that adsorbs your hard earned life's moral and wisdom.
 
 - Process is what achieves the end goal, no matter how unrealistic the goal may seem at your current skill level.
+
