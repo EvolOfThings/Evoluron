@@ -18,3 +18,4 @@
 
 - Process is what achieves the end goal, no matter how unrealistic the goal may seem at your current skill level.
 
+- Think about what you are doing, why you are doing and how will it help you in short term and long term, what's is more important and then proceed.
