@@ -19,3 +19,5 @@
 - Process is what achieves the end goal, no matter how unrealistic the goal may seem at your current skill level.
 
 - Think about what you are doing, why you are doing and how will it help you in short term and long term, what's is more important and then proceed.
+
+- Always try to get back to your center. The center of your existence, the awareness you came about in meditation. That's the only way you will find your way back if you are lost in the hedonist world ways.
