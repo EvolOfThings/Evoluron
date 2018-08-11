@@ -23,3 +23,5 @@
 - Always try to get back to your center. The center of your existence, the awareness you came about in meditation. That's the only way you will find your way back if you are lost in the hedonist world ways.
 
 - Decide and head in that direction, the journey will chnage you not the destination.
+
+- Revisit the plans, goals, promises and your personal morals to analyze the efficiency of your system.
