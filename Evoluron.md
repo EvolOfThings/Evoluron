@@ -24,4 +24,6 @@
 
 - Decide and head in that direction, the journey will chnage you not the destination.
 
-- Revisit the plans, goals, promises and your personal morals to analyze the efficiency of your system.
+- Revisit the plans, goals, promises and your personal morals to analyze the efficiency of your program.
+
+- If there's a hard decision that you are conflicted about, first think what makes it a hard decision and then make a decision that meets your end goal.
