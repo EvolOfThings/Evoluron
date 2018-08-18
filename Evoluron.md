@@ -29,3 +29,5 @@
 - If there's a hard decision that you are conflicted about, first think what makes it a hard decision and then make a decision that meets your end goal.
 
 - Every man has two lives, and the second begins when he realizes he has only one. [Confucius] I'm here.
+
+- Take care of health.
