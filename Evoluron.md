@@ -31,3 +31,5 @@
 - Every man has two lives, and the second begins when he realizes he has only one. [Confucius] I'm here.
 
 - Take care of health.
+
+- Read. Whenever you have time to spare read a book.
