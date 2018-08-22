@@ -33,3 +33,5 @@
 - Take care of health.
 
 - Read. Whenever you have time to spare read a book.
+
+- Human behaviors are often tied to one another. Habits have domino effect, that may good habits or bad ones. They tend to chain to one another and the process brings about a significant change. Just start with one and slowly you will change most of your ways for good.
