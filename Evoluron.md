@@ -37,3 +37,5 @@
 - Human behaviors are often tied to one another. Habits have domino effect, that may good habits or bad ones. They tend to chain to one another and the process brings about a significant change. Just start with one and slowly you will change most of your ways for good.
 
 - The only way is the way of disruption. Disruption causes destruction as well as creation.
+
+- Breaking into something new always needs a discipline, and reinforce that discipline with all your willpower, once you gain momentum, there's no need of willpower but discipline has to be there beneath the activity just so you don't back away from temporary hardship of the new skill.
