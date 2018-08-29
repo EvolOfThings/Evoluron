@@ -39,3 +39,7 @@
 - The only way is the way of disruption. Disruption causes destruction as well as creation.
 
 - Breaking into something new always needs a discipline, and reinforce that discipline with all your willpower, once you gain momentum, there's no need of willpower but discipline has to be there beneath the activity just so you don't back away from temporary hardship of the new skill.
+
+- silence...
+
+-
