@@ -43,3 +43,7 @@
 - silence...
 
 - Treat your body like it's 2nd system and the one that's run by a child constantly craving for instant gratification. The other one being aware of what's the right thing to do subjectively. In order to discipline the child use a treat for a task method. give a treat of instant gratification and do the task so the pattern is established, making brain think the task is actually gratifying and with enough repetitions it'll become stronger and it becomes a habit.
+
+- Practice Vipassana everyday.
+
+-
