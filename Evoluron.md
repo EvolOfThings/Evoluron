@@ -46,4 +46,4 @@
 
 - Practice Vipassana everyday.
 
--
+- Failed? Try again. Don't quit before you have tried again.
