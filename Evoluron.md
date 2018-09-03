@@ -47,3 +47,7 @@
 - Practice Vipassana everyday.
 
 - Failed? Try again. Don't quit before you have tried again.
+
+- You can dream or achieve anything you want and there's nothing wrong in wanting to achieve many things, but priorties gotta be in right order. When your priorties are in order, you can achieve anything you want to achieve.
+
+-
