@@ -50,4 +50,4 @@
 
 - You can dream or achieve anything you want and there's nothing wrong in wanting to achieve many things, but priorties gotta be in right order. When your priorties are in order, you can achieve anything you want to achieve.
 
--
+- Focus all your energy on the highest priority. To be able to focus, first you need to learn how to focus. It is through meditation, no not by closing your eyes rather by bringing your awareness to the task that's at the highest priority. It is difficult but it gets easier eventually. Focus.
