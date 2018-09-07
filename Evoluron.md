@@ -53,3 +53,5 @@
 - Focus all your energy on the highest priority. To be able to focus, first you need to learn how to focus. It is through meditation, no not by closing your eyes rather by bringing your awareness to the task that's at the highest priority. It is difficult but it gets easier eventually. Focus.
 
 - Virtue and Self control are the most important factors that determine the extent of self improvement. Strive in self-control through means of awareness.
+
+- Bring awareness to the present.
