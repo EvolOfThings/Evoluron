@@ -55,3 +55,5 @@
 - Virtue and Self control are the most important factors that determine the extent of self improvement. Strive in self-control through means of awareness.
 
 - Bring awareness to the present.
+
+- Take care of Body and Mind.
