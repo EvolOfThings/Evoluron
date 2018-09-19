@@ -60,4 +60,4 @@
 
 - Affirmations with visualization, irrespective of how far fetched it might be from your current status. It may not bring you the exact fortune or goals but it shall conodition your mind to work towards it and anything that's action oriented with unwavering focus is bound to give desirable results.
 
--
+- Longing to feel the way you once felt is a weakness most people have. Instead of reliving the past, use your new state to rediscover yourself.
