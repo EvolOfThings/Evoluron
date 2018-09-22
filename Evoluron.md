@@ -63,4 +63,5 @@
 - Longing to feel the way you once felt is a weakness most people have. Instead of reliving the past, use your new state to rediscover yourself.
 
 - Dont want to do it? This is the perfect time to do it.
--
+
+- Thibaut on twitter @Kpaxs.
