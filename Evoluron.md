@@ -70,3 +70,6 @@
 
 - You are what you think you are. It is 100% percent possible what you set out to achieve, just stay persistent and keeo reminding yourself why you need to do it when you feel like not doing or about to fall off wagon. Before you know it, the results starts to pour in when you are just quarter way to the goal, the universe starts to make way for you.
 
+- Remind yourself the Whys of a pursuit. You will get through any hurdles faced. This is how you build persistent perseverance bit by bit and trust that momentum will take care of the rest. This brings about a character you've admired to become.
+
+-
