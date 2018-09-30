@@ -72,4 +72,6 @@
 
 - Remind yourself the Whys of a pursuit. You will get through any hurdles faced. This is how you build persistent perseverance bit by bit and trust that momentum will take care of the rest. This brings about a character you've admired to become.
 
+- Recondition your connectome to reorient the world's connectome to get what you want and you will.
+
 -
