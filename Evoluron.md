@@ -74,4 +74,6 @@
 
 - Recondition your connectome to reorient the world's connectome to get what you want and you will.
 
--
+- Cult. Making something a ritual brings about a culture. A culture that has set of beliefs, beliefs to achieve goals. Make a cult for your fitness routine for life.
+
+
