@@ -76,4 +76,4 @@
 
 - Cult. Making something a ritual brings about a culture. A culture that has set of beliefs, beliefs to achieve goals. Make a cult for your fitness routine for life.
 
-
+- When and body and mind are aligned, something happens inside you(awarness in the dormant stage awakens). If there's something out of alignment, your awareness shows it to you in many ways to signal you to correct it through either body or mind. When you listen to it, and follow it...[to be continued...]
