@@ -84,4 +84,4 @@
 
 - It is time when it is time.
 
--
+- Keep going when it's the hardest.
