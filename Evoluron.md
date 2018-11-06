@@ -85,3 +85,8 @@
 - It is time when it is time.
 
 - Keep going when it's the hardest.
+
+- Hope. It doesn't offer itself up. One has to use the imagination, Imagine the solution and work to make it a reality.
+        "Whole world pivots on the acts of imagination."
+
+-
