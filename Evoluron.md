@@ -89,4 +89,6 @@
 - Hope. It doesn't offer itself up. One has to use the imagination, Imagine the solution and work to make it a reality.
         "Whole world pivots on the acts of imagination."
 
+- Only in darkness are we revealed. Goodness us is not goodness that seeks advantage. Good is good in the final hour, in the deepest pit without hope, without witness, without reward, Virtue is only virtue in extremis. - Hooded Figure (from Doctor Who)
+
 -
