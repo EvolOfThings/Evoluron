@@ -91,4 +91,6 @@
 
 - Only in darkness are we revealed. Goodness us is not goodness that seeks advantage. Good is good in the final hour, in the deepest pit without hope, without witness, without reward, Virtue is only virtue in extremis. - Hooded Figure (from Doctor Who)
 
+- Wake up, Code, Workout and Repeat.
+
 -
