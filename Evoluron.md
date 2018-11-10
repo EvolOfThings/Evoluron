@@ -93,4 +93,6 @@
 
 - Wake up, Code, Workout and Repeat.
 
+- Set things in motion, momentum kicks in, and the things will change readically.
+
 -
