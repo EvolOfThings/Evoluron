@@ -96,3 +96,5 @@
 - Set things in motion, momentum kicks in, and the things will change readically.
 
 - A task with an effort on a streak gains momentum proportionally to the efforts. However, the duration of the goal is unpredictable. But Pareto Principle can help reach the goal sooner. 11/11
+
+- Take a small step, stay consistent with it.
