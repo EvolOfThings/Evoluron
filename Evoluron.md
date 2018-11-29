@@ -100,3 +100,9 @@
 - Take a small step, stay consistent with it.
 
 - Always be proactive physically even if there's fatigue or lethargy. Physical movement chnages the dynamics of it.
+
+- Set yourself a new limit everytime you get a chance, even if it seems impossible at that moment.
+
+- The only way you will be able to unbundle your potential is after you have accepted yourself. Move past it. True relationships will be built there after that stands til the time ends.
+
+-
