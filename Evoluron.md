@@ -106,3 +106,7 @@
 - The only way you will be able to unbundle your potential is after you have accepted yourself. Move past it. True relationships will be built there after that stands til the time ends.
 
 - Don't be afraid to make your point. The point, the revelation, the insight, you went through an experience to get to that point. Don't let it go for a vain. Amend it if there's a feedback that comes from a credible source or a person.
+
+- Just look up to the Stars.
+
+-
