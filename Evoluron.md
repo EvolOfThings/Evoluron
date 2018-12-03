@@ -109,4 +109,6 @@
 
 - Just look up to the Stars.
 
+- Just do it even when you feel like not doing it. Just after the tiny step of action builds just enough momentum to make you keep going and when you look back, you will be awed at yourself! Just do it!
+
 -
