@@ -107,8 +107,13 @@
 
 - Don't be afraid to make your point. The point, the revelation, the insight, you went through an experience to get to that point. Don't let it go for a vain. Amend it if there's a feedback that comes from a credible source or a person.
 
+
 - Just look up to the Stars.
 
 - Just do it even when you feel like not doing it. Just after the tiny step of action builds just enough momentum to make you keep going and when you look back, you will be awed at yourself! Just do it!
+
+- Visualize your goal, don't waste a min in a day. plan every minute of the day to work towards it.
+
+
 
 -
