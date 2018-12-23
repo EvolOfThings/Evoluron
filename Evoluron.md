@@ -114,6 +114,6 @@
 
 - Visualize your goal, don't waste a min in a day. plan every minute of the day to work towards it.
 
-
+- When the circumstances are absolutely overwhelming, just take a deep breath and tell yourself that "It's all going to be alright, one day at a time towards the progress".
 
 -
