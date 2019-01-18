@@ -116,4 +116,4 @@
 
 - When the circumstances are absolutely overwhelming, just take a deep breath and tell yourself that "It's all going to be alright, one day at a time towards the progress".
 
--
+- Avoiding failure leads to lead a failed life.
