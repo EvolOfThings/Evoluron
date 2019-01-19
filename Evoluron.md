@@ -117,3 +117,7 @@
 - When the circumstances are absolutely overwhelming, just take a deep breath and tell yourself that "It's all going to be alright, one day at a time towards the progress".
 
 - Avoiding failure leads to lead a failed life.
+
+- When lost or in a bad headspace, start fresh. Don't go for self improvement now, go for self transformation. It is radically changing the way you do things.
+
+-
