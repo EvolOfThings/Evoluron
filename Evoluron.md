@@ -120,4 +120,6 @@
 
 - When lost or in a bad headspace, start fresh. Don't go for self improvement now, go for self transformation. It is radically changing the way you do things.
 
+- Sometimes you've got to keep going even if it gets too dark, you will come out of the tunnel.
+
 -
