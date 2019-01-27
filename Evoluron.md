@@ -128,4 +128,6 @@
 
 - Kepp trying!
 
+- Self transform to change the existing reality.
+
 -
