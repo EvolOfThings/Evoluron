@@ -130,4 +130,6 @@
 
 - Self transform to change the existing reality.
 
+- If a decision seems hard, then it's the action you are worried about. You are afraid you can't follow through the decision hence ambiguity in making a decision. How to deal with it? You decide something and you will act on it, but how to keep up with the action til the end goal is another question. What do you need here? Being persistent with your action, what fuels the persistence? Why? Why do you need to reach the end goal? How badly you want to reach it? "Why" is the only question you should ask yourself when there's a decision to make and to keep with the action.
+
 -
