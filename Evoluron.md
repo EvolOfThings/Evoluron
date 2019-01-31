@@ -134,4 +134,6 @@
 
 - The struggle is real. Struggle to discipline, struggle to start, struggle to stick with a decision, struggle to stay authentic. That's the struggle that will get one to the one's dream's place. Making through that struggle is what will make your character, the character that is asked by the future you.
 
+- Time is but a river flowing from our past.
+
 -
