@@ -136,4 +136,6 @@
 
 - Time is but a river flowing from our past.
 
+- Having just principles isn't enough, one has to assert values only then they become real.
+
 -
