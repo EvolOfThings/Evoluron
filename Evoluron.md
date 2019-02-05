@@ -138,4 +138,6 @@
 
 - Having just principles isn't enough, one has to assert values only then they become real.
 
+- Just start living very execessively.
+
 -
