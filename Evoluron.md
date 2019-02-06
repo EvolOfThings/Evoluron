@@ -140,4 +140,10 @@
 
 - Just start living very execessively.
 
+- Your cooperation with the things you don't like is what will keep you imprisoned. Drop the coooperation, don't put any effort or thoughts into it. If you do, it will only become significant so just do it instantly.
+
+- Your unconscious conditioning is the reason you are where you are right now. Become more alert to the moment and do things in spur of moment towards the goal.
+
+- Finishing line is a lot closer once you start running towards it.
+
 -
