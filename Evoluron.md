@@ -126,7 +126,7 @@
 
 - Go deep into your own mind to find out the possible causes of your worries, fears, restlessness, procrastination and anything that's making you not peace with yourself.
 
-- Kepp trying!
+- Keep trying!
 
 - Self transform to change the existing reality.
 
