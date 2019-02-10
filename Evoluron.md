@@ -144,6 +144,8 @@
 
 - Your unconscious conditioning is the reason you are where you are right now. Become more alert to the moment and do things in spur of moment towards the goal.
 
-- Finishing line is a lot closer once you start running towards it.
+- The finishing line is a lot closer once you start running towards it.
+
+- If you are not conscious of each moment, you will just drift away in life aimlessly. Have a goal and work towards it, avoid anything that takes you a step back.
 
 -
