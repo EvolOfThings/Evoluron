@@ -148,4 +148,6 @@
 
 - If you are not conscious of each moment, you will just drift away in life aimlessly. Have a goal and work towards it, avoid anything that takes you a step back.
 
+- Day dream with respect to your current priority or the skill you are developing.
+
 -
