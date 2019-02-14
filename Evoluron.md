@@ -150,4 +150,6 @@
 
 - Day dream with respect to your current priority or the skill you are developing.
 
+- Relax into who you are first, then plan and execute who you want to be.
+
 -
