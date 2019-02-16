@@ -152,4 +152,6 @@
 
 - Relax into who you are first, then plan and execute who you want to be.
 
+- Don't think about whats of after the goal, think only about the goal until you've reached it.
+
 -
