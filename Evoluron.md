@@ -154,4 +154,6 @@
 
 - Don't think about whats of after the goal, think only about the goal until you've reached it.
 
+- Act like your future you.
+
 -
