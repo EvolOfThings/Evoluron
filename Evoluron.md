@@ -156,4 +156,8 @@
 
 - Act like your future you.
 
+- Certainity comes at a price.
+
+- Get comfortable with action rather than inaction
+
 -
