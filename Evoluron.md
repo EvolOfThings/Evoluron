@@ -160,4 +160,6 @@
 
 - Get comfortable with action rather than inaction
 
+- To become what you want to be, you must kill who you are currently. Do it consistently.
+
 -
