@@ -162,4 +162,4 @@
 
 - To become what you want to be, you must kill who you are currently. Do it consistently.
 
--
+- Comfort stunts your chance for growth, it is the pain that we avoid fuels the growth.
