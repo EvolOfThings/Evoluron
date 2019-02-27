@@ -166,4 +166,7 @@
 
 - ADHD. Deal with it!
 
+- You just have to keep going!! GRIT!!
+-
+
 -
