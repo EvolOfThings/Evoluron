@@ -167,6 +167,7 @@
 - ADHD. Deal with it!
 
 - You just have to keep going!! GRIT!!
--
+
+- You will never give up. Keep getting up again and again.
 
 -
