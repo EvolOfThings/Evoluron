@@ -170,4 +170,6 @@
 
 - You will never give up. Keep getting up again and again.
 
+- Recognize a pattern and change it as per your intentions and goals!
+
 -
