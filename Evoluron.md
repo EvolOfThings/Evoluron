@@ -172,4 +172,6 @@
 
 - Recognize a pattern and change it as per your intentions and goals!
 
+- Wake up!
+
 -
