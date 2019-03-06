@@ -174,4 +174,6 @@
 
 - Wake up!
 
+- If you don't exercise your will to control your actions, then somebody else will control your will to exercise their goals.
+
 -
