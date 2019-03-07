@@ -176,4 +176,6 @@
 
 - If you don't exercise your will to control your actions, then somebody else will control your will to exercise their goals.
 
+- Be a friend to yourself, even when the times are horrible and hopeless. Only you can get through it if you just lie to yourself that you are strong enough and you will actually get stronger. Mind works in mysterious ways, just like the universe.
+
 -
