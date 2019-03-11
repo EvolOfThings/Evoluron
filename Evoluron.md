@@ -178,4 +178,6 @@
 
 - Be a friend to yourself, even when the times are horrible and hopeless. Only you can get through it if you just lie to yourself that you are strong enough and you will actually get stronger. Mind works in mysterious ways, just like the universe.
 
+- Always get back to your aspiring self no matter how many times you fail. But have to reassess what went wrong and reevaluate the approach.
+
 -
