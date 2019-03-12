@@ -180,4 +180,4 @@
 
 - Always get back to your aspiring self no matter how many times you fail. But have to reassess what went wrong and reevaluate the approach.
 
--
+- Start now to thank yourself later.
