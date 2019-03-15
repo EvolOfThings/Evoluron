@@ -184,4 +184,6 @@
 
 - When lost, just follow the light however dum it is. One leads to another.
 
+- Radical personality change is needed if you want to elevate to the level that is needed to fulfill the dreams and goals. The personality that can withstand and persevere.
+
 -
