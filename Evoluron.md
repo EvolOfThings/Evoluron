@@ -186,4 +186,6 @@
 
 - Radical personality change is needed if you want to elevate to the level that is needed to fulfill the dreams and goals. The personality that can withstand and persevere.
 
+- Perfectionism isn't in the nature. Don't fall for making anything perfect, there is not perfect. It doesn't exist.
+
 -
