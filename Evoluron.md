@@ -188,4 +188,6 @@
 
 - Perfectionism isn't in the nature. Don't fall for making anything perfect, there is not perfect. It doesn't exist.
 
+- It should be Do or Die for every dream you want to achieve.
+
 -
