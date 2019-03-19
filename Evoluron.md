@@ -190,4 +190,6 @@
 
 - It should be Do or Die for every dream you want to achieve.
 
+- You've got to push through the resistence.
+
 -
