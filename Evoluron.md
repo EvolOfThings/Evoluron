@@ -192,4 +192,6 @@
 
 - You've got to push through the resistence.
 
+- Vision without execution is a hallucination.
+
 -
