@@ -194,4 +194,6 @@
 
 - Vision without execution is a hallucination.
 
+- Always overperform.
+
 -
