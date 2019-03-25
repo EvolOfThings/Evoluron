@@ -196,4 +196,6 @@
 
 - Always overperform.
 
+- Wake up man!!
+
 -
