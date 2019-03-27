@@ -200,4 +200,6 @@
 
 - If you don't consider the time, you will face the consequences in ways you could've never imagined when you had the time.
 
+- Die to be reborn!
+
 -
