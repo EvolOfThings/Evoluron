@@ -202,4 +202,6 @@
 
 - Die to be reborn!
 
+- Don't until you have lost everything to make a change.
+
 -
