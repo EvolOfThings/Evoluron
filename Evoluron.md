@@ -204,4 +204,6 @@
 
 - Don't until you have lost everything to make a change.
 
+- Get back to what worked and helped you grow as a person.
+
 -
