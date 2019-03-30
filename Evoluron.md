@@ -206,4 +206,6 @@
 
 - Get back to what worked and helped you grow as a person.
 
+- Live as authentically as possible. Never lie and stay away from drama.
+
 -
