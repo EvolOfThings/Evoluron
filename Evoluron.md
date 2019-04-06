@@ -210,4 +210,6 @@
 
 - If you want to stop a habit, simply pay attention the thought and say NO, say NO for that time only. Don't play with the thought but just say NO and move on.
 
+ - Just believe it's possible.
+
  -
