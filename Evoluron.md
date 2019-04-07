@@ -212,4 +212,6 @@
 
  - Just believe it's possible.
 
+ - If you don;t plan and give purpose to your brain, it will work in default mode of primitive urges and whatever you've conditioned. You will tend to seek only instant gratification.
+
  -
