@@ -212,6 +212,8 @@
 
  - Just believe it's possible.
 
- - If you don;t plan and give purpose to your brain, it will work in default mode of primitive urges and whatever you've conditioned. You will tend to seek only instant gratification.
+ - If you don't plan and give purpose to your brain, it will work in default mode of primitive urges and whatever you've conditioned. You will tend to seek only instant gratification.
+
+ - The value of the future goal is the present change it fosters. Set goals to change the way you act and indirectly you achieve them. goals are set to change your present set of behaviour so that you can become who will achieve that in future.
 
  -
