@@ -216,4 +216,8 @@
 
  - The value of the future goal is the present change it fosters. Set goals to change the way you act and indirectly you achieve them. goals are set to change your present set of behaviour so that you can become who will achieve that in future.
 
+ - there is one thing you need to keep in mind while learning to bolster courage: to get it, you must start demonstrating it.
+
+ - you can do this!
+
  -
