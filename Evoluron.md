@@ -220,4 +220,8 @@
 
  - you can do this!
 
+ - you have seen how time is fleeting and how you tend to overestimate the time left to finish the task. Just do it when you don't feel like doing it.
+
+ - Integrity is about sticking to your strong moral principles in the face of adversity and temptations.
+
  -
