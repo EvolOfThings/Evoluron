@@ -224,4 +224,6 @@
 
  - Integrity is about sticking to your strong moral principles in the face of adversity and temptations.
 
+ - The soul always knows what to do to heal itself. The challenge is to silence the mind. Meditate.
+
  -
