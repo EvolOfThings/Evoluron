@@ -226,4 +226,7 @@
 
  - The soul always knows what to do to heal itself. The challenge is to silence the mind. Meditate.
 
- -
+ - There are no limits, physical or anyhting else. There are only plateaus,go beyond them.
+
+ - Defeat the mind.
+
