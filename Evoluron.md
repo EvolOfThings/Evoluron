@@ -232,4 +232,6 @@
 
 - “If you want something new, you have to stop doing something old.”
 
+- Bring order and punctuality to the work, success and luck will favour you.
+
 -
