@@ -230,3 +230,6 @@
 
  - Defeat the mind.
 
+- “If you want something new, you have to stop doing something old.”
+
+-
