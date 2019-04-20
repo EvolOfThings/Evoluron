@@ -234,4 +234,8 @@
 
 - Bring order and punctuality to the work, success and luck will favour you.
 
--
+- Everyday habits form our future selves, they determine you will ultimately become.
+
+- Never underestimate the power of every small habits/actions over time.
+
+- Who you are, emotionally, is a reflection of the things you consciously (or unconsciously) practice.
