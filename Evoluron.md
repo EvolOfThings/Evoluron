@@ -239,3 +239,5 @@
 - Never underestimate the power of every small habits/actions over time.
 
 - Who you are, emotionally, is a reflection of the things you consciously (or unconsciously) practice.
+
+- Just focus on the work, the work your brain tells you to avoid or procrastinate. You just have to do it for better future.
