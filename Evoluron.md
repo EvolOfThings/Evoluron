@@ -210,25 +210,25 @@
 
 - If you want to stop a habit, simply pay attention the thought and say NO, say NO for that time only. Don't play with the thought but just say NO and move on.
 
- - Just believe it's possible.
+- Just believe it's possible.
 
- - If you don't plan and give purpose to your brain, it will work in default mode of primitive urges and whatever you've conditioned. You will tend to seek only instant gratification.
+- If you don't plan and give purpose to your brain, it will work in default mode of primitive urges and whatever you've conditioned. You will tend to seek only instant gratification.
 
- - The value of the future goal is the present change it fosters. Set goals to change the way you act and indirectly you achieve them. goals are set to change your present set of behaviour so that you can become who will achieve that in future.
+- The value of the future goal is the present change it fosters. Set goals to change the way you act and indirectly you achieve them. goals are set to change your present set of behaviour so that you can become who will achieve that in future.
 
- - there is one thing you need to keep in mind while learning to bolster courage: to get it, you must start demonstrating it.
+- there is one thing you need to keep in mind while learning to bolster courage: to get it, you must start demonstrating it.
 
- - you can do this!
+- you can do this!
 
- - you have seen how time is fleeting and how you tend to overestimate the time left to finish the task. Just do it when you don't feel like doing it.
+- you have seen how time is fleeting and how you tend to overestimate the time left to finish the task. Just do it when you don't feel like doing it.
 
- - Integrity is about sticking to your strong moral principles in the face of adversity and temptations.
+- Integrity is about sticking to your strong moral principles in the face of adversity and temptations.
 
- - The soul always knows what to do to heal itself. The challenge is to silence the mind. Meditate.
+- The soul always knows what to do to heal itself. The challenge is to silence the mind. Meditate.
 
- - There are no limits, physical or anyhting else. There are only plateaus,go beyond them.
+- There are no limits, physical or anyhting else. There are only plateaus,go beyond them.
 
- - Defeat the mind.
+- Defeat the mind.
 
 - “If you want something new, you have to stop doing something old.”
 
@@ -241,3 +241,7 @@
 - Who you are, emotionally, is a reflection of the things you consciously (or unconsciously) practice.
 
 - Just focus on the work, the work your brain tells you to avoid or procrastinate. You just have to do it for better future.
+
+- Just believe that you can do and you will get it. Just feel that deeply. It wires your brain and helps you to work towards the goals.
+
+-
