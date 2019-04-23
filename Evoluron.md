@@ -244,4 +244,6 @@
 
 - Just believe that you can do and you will get it. Just feel that deeply. It wires your brain and helps you to work towards the goals.
 
+- When you know the universe is responding, go all in with your effort towards the goal.
+
 -
