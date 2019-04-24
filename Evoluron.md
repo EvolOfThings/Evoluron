@@ -246,4 +246,6 @@
 
 - When you know the universe is responding, go all in with your effort towards the goal.
 
+- You just have to visualize yourself the person who you want to be and act accordingly.
+
 -
