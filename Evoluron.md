@@ -248,4 +248,6 @@
 
 - You just have to visualize yourself the person who you want to be and act accordingly.
 
+- No matter how hard it seems or how difficult it is for your mind to do what's necessary, you must do it. at the least a little bit. consistency will always win. Don't give in to your mind. Push it.
+
 -
