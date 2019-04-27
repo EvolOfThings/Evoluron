@@ -226,7 +226,7 @@
 
 - The soul always knows what to do to heal itself. The challenge is to silence the mind. Meditate.
 
-- There are no limits, physical or anyhting else. There are only plateaus,go beyond them.
+- There are no limits, physical or anything else. There are only plateaus,go beyond them.
 
 - Defeat the mind.
 
@@ -249,5 +249,7 @@
 - You just have to visualize yourself the person who you want to be and act accordingly.
 
 - No matter how hard it seems or how difficult it is for your mind to do what's necessary, you must do it. at the least a little bit. consistency will always win. Don't give in to your mind. Push it.
+
+- Do your best.
 
 -
