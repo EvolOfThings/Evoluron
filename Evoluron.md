@@ -252,4 +252,8 @@
 
 - Do your best.
 
+- State of our attention determines the state of our lives.
+
+- Stay positive and optimistic. You never how how universe will make it work it out for you.
+
 -
