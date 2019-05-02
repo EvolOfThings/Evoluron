@@ -257,3 +257,7 @@
 - Stay positive and optimistic. You never how how universe will make it work it out for you.
 
 - When you have failed at something; identify the expectation of that task or goal and go at it harder. It just gives a chance to become much better. Don't give up.
+
+- You've gotta do something so big that is completely out of your league in terms of competence and confidence.
+
+-
