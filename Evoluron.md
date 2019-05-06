@@ -260,4 +260,6 @@
 
 - You've gotta do something so big that is completely out of your league in terms of competence and confidence.
 
+- Get it together!!
+
 -
