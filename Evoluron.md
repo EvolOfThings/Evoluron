@@ -264,4 +264,6 @@
 
 - Get up back!
 
+ - Pay attention to your mind, don't control it but pay attention.
+
  -
