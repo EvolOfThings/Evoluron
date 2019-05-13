@@ -268,4 +268,6 @@
 
  - Change is a process not an event. small steps, it doesn't matter how small the step is as long as it is positive and contributes to your goal change is happening.
 
- - S
+ - Take responsibility and commit your action towards making it better.
+
+ -
