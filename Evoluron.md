@@ -270,4 +270,6 @@
 
  - Take responsibility and commit your action towards making it better.
 
+ - Today I shall behave. As if this is the day i will be remembered. Total committment.
+
  -
