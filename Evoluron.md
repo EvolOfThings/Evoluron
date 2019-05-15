@@ -272,4 +272,6 @@
 
  - Today I shall behave. As if this is the day i will be remembered. Total committment.
 
+ - Meditate and Exercise. Even if your mind and the circumstances you are in are bad, meditation can make it much easier to cope and also deal with it in much healthier way.
+
  -
