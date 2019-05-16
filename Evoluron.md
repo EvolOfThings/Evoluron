@@ -274,4 +274,6 @@
 
  - Meditate and Exercise. Even if your mind and the circumstances you are in are bad, meditation can make it much easier to cope and also deal with it in much healthier way.
 
+ - Watch your thoughts. Just be aware of them.
+
  -
