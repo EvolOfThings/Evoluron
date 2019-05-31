@@ -278,4 +278,6 @@
 
  - Make deliberate choices that will lead you to critical junctures, assert authority over chance, fate and destiny, because everything does happen for a reason. and that reason is YOU. To attain elite success you must be willing to make hard choices, risk your most valuable assests and sacrifices. True greatness comes to those who are willing pursue it AT ANY COST!!
 
+ - Dopamine fasting. Starve yourself of all instant gratification and dopamine releases, so that you can focus on one thing intensely.
+
  -
