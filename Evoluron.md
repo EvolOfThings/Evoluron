@@ -280,4 +280,8 @@
 
  - Dopamine fasting. Starve yourself of all instant gratification and dopamine releases, so that you can focus on one thing intensely.
 
+ - Landing is launching.
+
+ - Destruction gives way to creation.
+
  -
