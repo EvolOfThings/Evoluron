@@ -286,4 +286,6 @@
 
  - 111 When it is hard to do, that's when you know it's worth your time and efforts. Gritting through adversity helps building a character that essential makes you an outlier and achieve things that you were only imagining. Nothing is impossible if you are persistent.
 
+ - Start.
+
  -
