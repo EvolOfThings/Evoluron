@@ -288,4 +288,6 @@
 
  - Start.
 
+ - You should get it together now. You always knew you were gonna move out, and you have. Next step!
+
  -
