@@ -290,4 +290,6 @@
 
  - You should get it together now. You always knew you were gonna move out, and you have. Next step!
 
+ - How long are you going to wait before you demand the best for yourself? Ppl admire the man that shows fortitude in adversities.
+
  -
