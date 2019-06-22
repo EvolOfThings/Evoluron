@@ -292,4 +292,6 @@
 
  - How long are you going to wait before you demand the best for yourself? Ppl admire the man that shows fortitude in adversities.
 
+ - Live your reality, you will attract the abundance that will enrich your life. Personally and professionally.
+
  -
