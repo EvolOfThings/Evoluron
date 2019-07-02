@@ -294,4 +294,6 @@
 
  - Live your reality, you will attract the abundance that will enrich your life. Personally and professionally.
 
+ - You prepare to prevent.
+
  -
