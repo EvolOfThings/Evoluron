@@ -296,4 +296,6 @@
 
  - You prepare to prevent.
 
+ - Get home. Meditate.
+
  -
